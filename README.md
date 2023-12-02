@@ -21,6 +21,8 @@ Here are some ideas to get you started:
 
 - :zap: In my free time, I listen to Rock'N'Roll Music.
 
+- 🛬 Struggling to be a Digital Nomad.
+
 
 ### 🔥 My Stats
 
